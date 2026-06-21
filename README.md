@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Stuti Banthwan B.Tech CSE student.<br>
+I am Stuti Banthwan B.Tech CSE Student.<br>
 
 
 ## 🌐 Socials:
